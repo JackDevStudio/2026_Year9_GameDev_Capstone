@@ -8,3 +8,6 @@ completed onion worksheet
 5/5/26
 completed worksheet 2 
 completed four corners sheet.
+
+11/5/26
+Completed game design element checklist
