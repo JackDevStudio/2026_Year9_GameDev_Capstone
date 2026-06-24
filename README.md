@@ -11,3 +11,6 @@ completed four corners sheet.
 
 11/5/26
 Completed game design element checklist
+
+24/06/26
+completed game and reflection on capstone booklet
